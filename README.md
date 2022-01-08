@@ -1,4 +1,4 @@
-**no chains... blocks or otherwise.**
+# no chains... blocks or otherwise.
 
 i'm a presence in the wired and use it/its pronouns.
 
